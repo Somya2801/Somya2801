@@ -27,7 +27,7 @@
 
 - 📫 How to reach me **ssingh1_bemba20@thapar.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/my-drive](https://drive.google.com/drive/my-drive)
+
 
 
 </p>
